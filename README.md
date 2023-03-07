@@ -1,1 +1,1 @@
-# rsschool-cv
+[Deploy link →](https://gordinski.github.io/rsschool-cv/)
