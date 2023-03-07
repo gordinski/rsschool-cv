@@ -9,3 +9,5 @@
 e.gordinski@gmail.com
 
 [telegram →](https://t.me/gordinski)
+
+>Don’t worry be happy
